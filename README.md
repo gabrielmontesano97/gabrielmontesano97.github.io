@@ -1,4 +1,3 @@
-# Portfólio — Gabriel Ferraz.
 # Gabriel Ferraz
 
 ## Redator publicitário com experiência em SEO e copywriting.
